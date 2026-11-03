@@ -4,14 +4,12 @@
 
 ## Ingredients
 
-* 2 avocados
+* 500 avocados
 * 1 chili
 * 1 lime
 * 1 tsp salt
 * 1/2 onion
 * 1 tomato
-* Cilantro
-
 
 
 ## Instructions
